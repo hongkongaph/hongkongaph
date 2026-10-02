@@ -2,7 +2,7 @@ hello! this is, if not obvious- fuwafuransu. no, i am no longer a proshipper, an
 
 ^^ taken directly from an atabook, from me. i do sincerely apologise for anything that's made people uncomfortable or confused towards me
 
-<img width="191" height="200" alt="image" src="https://github.com/user-attachments/assets/ace8dd55-44b5-466a-bb07-22bb3a29dbe6" />
+<img width="191" height="2100" alt="image" src="https://github.com/user-attachments/assets/ace8dd55-44b5-466a-bb07-22bb3a29dbe6" />
 
 ^ art of my oc eguisheim/paquerette bonnefoy by my good friend kabooples <3 since someone pointed out i never mention her
 
