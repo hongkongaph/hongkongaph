@@ -1,5 +1,4 @@
-<img width="505" alt="image" src="https://github.com/user-attachments/assets/ace8dd55-44b5-466a-bb07-22bb3a29dbe6" />
+<img width="508" alt="__hong_kong_axis_powers_hetalia_drawn_by_mi_aph_to__sample-fb87e24fa4b7f35b47d782a356cb647d-removebg-preview" src="https://github.com/user-attachments/assets/a232bb26-0b7c-422d-95d9-3499508f1eed" />
 
-^ art of my oc eguisheim/paquerette bonnefoy by my good friend kabooples <3 since someone pointed out i never mention her
 
-if youre gonna harass me for my problems, kindly don't bother. it'll only be met with frustration, i've explained myself by now
+kindly do not bring up any previous dramas 
